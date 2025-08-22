@@ -2,7 +2,7 @@
 - I’m interested in ... Anything
 - I’m currently learning ...Nothing special really..
 - I’m looking to collaborate on ...My Neo Engine
-- How to reach me ...use ma email bro
+- How to reach me ...use ma workplace: "acountlinkedcmd@gmail.com" email bro
 - Pronouns: He/She/Wot??
 - Fun fact: FUCK EMANI
 
