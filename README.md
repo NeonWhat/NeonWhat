@@ -10,7 +10,7 @@
 -  Currently learning ... *Nothing special really*, unless "forgetting instantly" counts as a skill.  
 -  Collaborating on ... *My Neo Engine*, basically my little science experiment that somehow works and loads an entire city on my pc Without crashing my "Non-existent GPU".
 -  How to reach me: I advise you to contact me on newgrounds as I am more active here: newgroundsProfile → **https://neonc-137.newgrounds.com** 
-u can also use my workplace email → **acountlinkedcmd@gmail.com** (email me bro, don’t fax me [NOT ADVISABLE]).
+u can also use my workplace email [NOT ADVISABLE] → **acountlinkedcmd@gmail.com** (email me bro, don’t fax me).
 -  Pronouns: **He/She/Wot??** (depends on FPS and wether my "Non-existent GPU" crashes or not).  
 -  Fun fact: **FUCK EMANI** (don’t ask, just accept teh truth).
 -  (btw if u see a guy wearing a bagpack like Marcus Holloway from watch dogs does.. or with a pc and a bag like that.. 
